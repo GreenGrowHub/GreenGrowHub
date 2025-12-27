@@ -59,11 +59,11 @@ RobloxGrowGarden está diseñado para uso local en Roblox Studio (modo solitario
 
 **📸 Capturas**  
 **¡Mira RobloxGrowGarden en Acción!** 🎥  
-![Primera Vista](https://i.sooftcdn.com/screen/es/robloxgrowgarden.png)  
+![Primera Vista](https://www.pcgamesn.com/wp-content/sites/pcgamesn/2025/06/grow-a-garden-commands-cheats-pcgamesn-1-550x309.jpg)  
 *¡Crea granjas prósperas con herramientas que hacen que diseñar sea fácil!* 🌱  
 
 **¡Un jardín floreciente en solo minutos!** 🌿  
-![Segunda Vista](https://i.sooftcdn.com/screen/es/robloxgrowgarden2.png)  
+![Segunda Vista](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQHa-uxXgZuVNf0xHCSzRhmspCv5JDi-xtUVQ&s)  
 *¡Diseña huertos tranquilos con facilidad creativa y sin complicaciones!* 🌸  
 
 **🤝 Únete y Comparte**  
